@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me discord
 
-The red tavern Discord https://discord.gg/GTeQeezZ
+The red tavern Discord https://discord.gg/mKXecTfDCE
